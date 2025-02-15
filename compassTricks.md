@@ -1,0 +1,1 @@
+A compass is very useful when camping or out in the wilderness doing hunting & fishing. 
